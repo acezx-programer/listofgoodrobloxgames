@@ -18,18 +18,20 @@ roblox is a shitshow when it comes to the games they promote(not all good games 
 - [Space Wars](https://www.roblox.com/games/4588604953/Criminality)
 - [Defusal](https://www.roblox.com/games/3577061261/Defuse)
 - [Untitled tag game](https://www.roblox.com/games/14044547200/recode-untitled-tag-game)
+- [Natural Disaster Survival](https://www.roblox.com/games/189707/Natural-Disaster-Survival)
 
 ## Tycoon/Simulation
+- [Project Flight(Paid 50)](https://www.roblox.com/games/6349094071/UPDATE-Project-Flight-Early-Access-Pre-Alpha)
 - [Water Park World(Paid 25)](https://www.roblox.com/games/3178828841/Water-Park-World-Beta)
-- [High Iron](https://www.roblox.com/games/15542804777/High-Iron-Alpha)
+- [High Iron(Paid 25)](https://www.roblox.com/games/15542804777/High-Iron-Alpha)
 - [Industrialist](https://www.roblox.com/games/9192423027/Industrialist-Logic)
+- [Croydon: The London Transport Game](https://www.roblox.com/games/8265622251/V1-3-1-UPDATE-Croydon-The-London-Transport-Game)
 
 ## Parody
 - [The Wild West](https://www.roblox.com/games/2317712696/The-Wild-West)
 - [Please, Don't Touch Anything](https://www.roblox.com/games/10432964150/Please-Dont-Touch-Anything-3D-Check-Desc)
 - [Portal](https://www.roblox.com/games/4595863515/Portal-Tech-Demo)
 - [AOT Revolution](https://www.roblox.com/games/13379208636/SOON-Attack-on-Titan-Revolution)
-- 
 
 ## Racing
 - [Formula Apex Racing](https://www.roblox.com/games/5976159288/Formula-Apex-Racing)

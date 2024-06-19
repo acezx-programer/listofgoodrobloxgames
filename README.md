@@ -1,6 +1,9 @@
 # listofgoodrobloxgames
 roblox is a shitshow when it comes to the games they promote(not all good games are in here)
 
+## Deepwoken
+- [Deepwoken](https://www.roblox.com/games/4111023553/Deepwoken)
+
 ## Battlegrounds
 - [The Strongest Battlegrounds](https://www.roblox.com/games/10449761463/PSYCHIC-The-Strongest-Battlegrounds)
 - [Jujutsu Shenanigans](https://www.roblox.com/games/9391468976/Jujutsu-Shenanigans)

@@ -21,6 +21,7 @@ roblox is a shitshow when it comes to the games they promote(not all good games 
 - [Space Wars](https://www.roblox.com/games/4588604953/Criminality)
 - [Defusal](https://www.roblox.com/games/3577061261/Defuse)
 - [Untitled tag game](https://www.roblox.com/games/14044547200/recode-untitled-tag-game)
+- [Monkey Raft](https://www.roblox.com/games/17495769916/monkey-raft)
 - [Natural Disaster Survival](https://www.roblox.com/games/189707/Natural-Disaster-Survival)
 
 ## Tycoon/Simulation

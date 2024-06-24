@@ -17,6 +17,7 @@ roblox is a shitshow when it comes to the games they promote(not all good games 
 ## Teamwork/Fighting
 - [CRITICAL STRIKE](https://www.roblox.com/games/8246089782/CRITICAL-STRIKE-v5-9-7)
 - [PHIGHTING!](https://www.roblox.com/games/7138009149/PHIGHTING-ALPHA)
+- [Korrupt Zombies](https://www.roblox.com/games/10975855395/Korrupt-Zombies-Double-XP-Weekend)
 - [Criminality](https://www.roblox.com/games/4588604953/Criminality)
 - [Space Wars](https://www.roblox.com/games/4588604953/Criminality)
 - [Defusal](https://www.roblox.com/games/3577061261/Defuse)
